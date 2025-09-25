@@ -26,3 +26,6 @@
 ### 3. DONT PASTE ANYTHING IN CONSOLE! MAYBE SENDER WILL HAVE YOUR ACCOUNT !!!
 
 ## THANKS FOR READING THIS 💗💘❣️
+<img width="994" height="693" alt="image" src="https://github.com/user-attachments/assets/60823187-ae3f-4ab7-9b13-9aa2ca75f30b" />
+<img width="991" height="692" alt="image" src="https://github.com/user-attachments/assets/59594513-5b5c-4fe9-996a-3abb97e420d3" />
+<img width="992" height="698" alt="image" src="https://github.com/user-attachments/assets/de2af635-dcdf-432c-8959-5a61dd4dd23e" />
